@@ -1,5 +1,5 @@
 # Cx2
-Vendo acesso a checker com caixa2, interessados me chamar em algumas plataformas de venda.
+Vendo acesso a caixa2, interessados me chamar em algumas plataformas de venda.
 
 - Discord @w00x#4444
 - Instagram @xviiorg
